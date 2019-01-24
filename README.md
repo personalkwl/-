@@ -2,7 +2,7 @@
 
 Recalling the teachers I taught in those years, Miss Cang, Miss Chen and Miss Ozawa and so on.They are my sex enlightenment teachers.I recall today. I don't know who your sex enlightenment teacher is. Tell me your story, please.I'm waiting for you at 1024~
 
-回想当年我教过的老师，仓老师，陈老师，小泽老师等等，他们都是我的性启蒙老师，你还记得你的性启蒙老师是谁吗？请告诉我你的故事，我在1024~等你。什么某艳照、某优衣库、某好莱坞等都可以找到~
+回想当年我教过的老师，仓老师，陈老师，小泽老师等等，他们都是我的性启蒙老师，你还记得你的性启蒙老师是谁吗？请告诉我你的故事，我在1024~等你，某艳照、某优衣库、某莱坞哈啊哈，都是值得收藏的好东西！
 
 Teacher1：http://t.cn/E598trl       Teacher2：http://t.cn/E5pwemi        Teacher3：http://t.cn/E5pAGSv
 
